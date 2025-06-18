@@ -7,8 +7,10 @@
 - I LOVEE playing w/ yarn but its a big mess to clean *-*
 - I tend 2 wag my tail when im upset or angry.. 3:
 - im a bit airheaded lolzzz x3
+- i lovee drawing 2 ! XD
 
- 
+ ![image](https://github.com/user-attachments/assets/77690055-362b-4a12-ac02-c957db45cc86)
+
 
  ´Scraps is one creative craft! She loves to share her art and creations with her friends. She inspires many children to continue creating amazing things!´
 ## DIALOGUE !!
