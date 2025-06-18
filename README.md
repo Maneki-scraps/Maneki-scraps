@@ -4,11 +4,11 @@
 
  ´Scraps is one creative craft! She loves to share her art and creations with her friends. She inspires many children to continue creating amazing things!´
 
-@hugtimezz Hey little bro, nothings giving you trouble right?
+Scraps- `Hey little bro, nothings giving you trouble right?´
 	
-Well... Sorta? The Twisteds are.
+Goob- `Well... Sorta? The Twisteds are.´
 	
-Well yeah! Obviously haha, but if there's anything else you let me know! Alright?
+Scraps- `Well yeah! Obviously haha, but if there's anything else you let me know! Alright?´
 	
-Hehe alright! Thanks Scraps.
+Goob- `Hehe alright! Thanks Scraps.´
 
