@@ -1,4 +1,5 @@
-
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Pixelify+Sans&pause=1000&color=00FF2B&width=435&lines=And+our+lucky+contestant+today+is!!!+SCRAPS+!)](https://git.io/typing-svg)
+ ´Scraps is one creative craft! She loves to share her art and creations with her friends. She inspires many children to continue creating amazing things!´
 
 <!--
 **Maneki-scraps/Maneki-scraps** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
