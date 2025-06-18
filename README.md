@@ -4,7 +4,7 @@
 
  ´Scraps is one creative craft! She loves to share her art and creations with her friends. She inspires many children to continue creating amazing things!´
 
-Hey little bro, nothings giving you trouble right?
+@hugtimezz Hey little bro, nothings giving you trouble right?
 	
 Well... Sorta? The Twisteds are.
 	
