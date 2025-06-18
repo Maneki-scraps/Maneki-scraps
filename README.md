@@ -1,4 +1,8 @@
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Pixelify+Sans&pause=1000&color=00FF2B&width=435&lines=And+our+lucky+contestant+today+is!!!+SCRAPS+!)](https://git.io/typing-svg)
+![image](https://github.com/user-attachments/assets/78199ad4-1cf4-4a2b-bd82-99eae5a47905)
+
+
+
  ´Scraps is one creative craft! She loves to share her art and creations with her friends. She inspires many children to continue creating amazing things!´
 
 <!--
