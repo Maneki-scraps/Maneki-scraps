@@ -56,6 +56,8 @@ SCRAPS !- `Also… kind of scary, then.´
 ![428aa891-8e0c-43c9-a883-d60db0b01736](https://github.com/user-attachments/assets/da7cab55-f760-4c52-bcf7-f69cb9b4823a) 
 
 ## HCS !! :
+PLS DONT STEALL TY !
+
 scraps is not only an oragami but is also based off of a ManekiNeko !
 //reference 2 how lucky she is
 
