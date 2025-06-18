@@ -11,6 +11,9 @@
 
  ![image](https://github.com/user-attachments/assets/77690055-362b-4a12-ac02-c957db45cc86)
 
+## ELEVATOR
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Pixelify+Sans&pause=1000&color=000000&background=BEFFAE00&width=435&lines=V%3A++%60Well+if+it+isnt+scraps!%C2%B4;V%3A%60One+of+the+most+luckiest+toons+here!%C2%B4;S%3A%60idk+if+id+call+myself+lucky+but+thanks.%C2%B4.;V%3A%60That's+great!%C2%B4;V%3A%60Now+answer+me+this+winning+question!%C2%B4;S%3A%60Go+on%3F+%C2%B4;V%3A%60Who+was+the+contestant+that+won%C2%B4;V%3A%60ALLL+my+prizes.%C2%B4;V%3A%60EVERY+time.%C2%B4;V%3A%60FROM+LUCKY+GUESSES...%3F%3F%C2%B4;S%3A%60uhm..me..%3F%3F%C2%B4;V%3A%60++y+e+a+h+.+%C2%B4)](https://git.io/typing-svg)
+![Artist_ @Aoikiyo on X _#DandysWorld](https://github.com/user-attachments/assets/d9bbb93a-e43d-4986-b93e-e8181edb06c5)
 
  ´Scraps is one creative craft! She loves to share her art and creations with her friends. She inspires many children to continue creating amazing things!´
 ## DIALOGUE !!
